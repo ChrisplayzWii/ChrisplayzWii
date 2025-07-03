@@ -1,4 +1,4 @@
-## ChrisplayzWii!
+## TheBetaWiiNerd!
 ････････････････････････････････････････････････････････････････････････････････････････
 
 I like making fun projects that involve the Wii or Nintendo :)
