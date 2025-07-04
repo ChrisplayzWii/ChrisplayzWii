@@ -1,4 +1,4 @@
-## (formerly ChrisplayzWii)!
+## TheWiiArchivist (formerly ChrisplayzWii)!
 ････････････････････････････････････････････････････････････････････････････････････････
 
 I like making fun projects that involve the Wii or Nintendo :)
